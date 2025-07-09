@@ -1,1 +1,1 @@
-# UMBC_career_resources
+# UMBC Career Resources
